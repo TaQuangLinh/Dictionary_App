@@ -10,7 +10,7 @@ Thành viên:
   23020376 - Nguyễn Đức Huy
 
   
-  23020366 - Nguyễn Trung Hiếu
+
 
 
 
